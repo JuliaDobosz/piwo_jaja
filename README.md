@@ -3,3 +3,4 @@
 proszę nie przeklinać
 proszę o stosowanie się do zasad netykiety
 okiiiiiiiiiiii
+kiedy piwo?
