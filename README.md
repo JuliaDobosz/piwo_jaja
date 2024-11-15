@@ -12,3 +12,4 @@ okiiii
 
 >>>>>>> 6c00e8f234a146185a54d0c9f818e939490ceba0
 uuuu
+pisze w nowej galeziiiii
